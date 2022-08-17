@@ -1,0 +1,1 @@
+Day 1: The vase I broke to get the dog in trouble worked.
