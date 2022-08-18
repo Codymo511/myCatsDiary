@@ -1,0 +1,1 @@
+Day 1: Blaming the dog for breaking the vase worked.
